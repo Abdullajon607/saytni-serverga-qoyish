@@ -1,0 +1,1 @@
+# saytni-serverga-qoyish
